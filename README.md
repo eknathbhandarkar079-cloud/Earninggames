@@ -1,0 +1,2 @@
+# Earninggames
+Fake cash
